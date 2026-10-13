@@ -1,1 +1,1 @@
-# fatda-lab-1
+# Yeromenko Marharyta КМ-42
